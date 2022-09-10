@@ -1,0 +1,1 @@
+# minor-degre.github.io
